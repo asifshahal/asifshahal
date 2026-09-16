@@ -93,7 +93,7 @@ Beyond coding, I explore **UI/UX Design**, **Video Editing**, **Web3 Basics**, a
 
 *Have a project idea or want to collaborate? I'm always open to exciting opportunities.*
 
-**asifshahal@email.com**
+**mohamedasifshahal.s@gmail.com**
 
 ![Profile views](https://komarev.com/ghpvc/?username=asifshahal&color=00FFFF&style=flat-square&label=Profile+Views)
 
